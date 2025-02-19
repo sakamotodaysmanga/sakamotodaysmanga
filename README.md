@@ -1,7 +1,7 @@
 # Sakamoto Days Manga Online Reader Free
 
 ## [Read Sakamoto Days Manga Online Now 🕹️](https://www.sakamotodaysmanga.site/)
-![-S897-FWEBP](https://github.com/user-attachments/assets/92fcc3f5-4069-42ce-a43d-9054316cd203)
+![-S897-FWEBP](https://www.sakamotodaysmanga.site/)
 
 ## What is Sakamoto Days?
 
